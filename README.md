@@ -1,4 +1,5 @@
-## Hi there 👋
+## 𓇬⋆ ﾟ꩜‧˚𑁍ܓ![2c61789b57456cc3cd1e0b1ea461d210](https://github.com/user-attachments/assets/8bad4636-d7d4-4156-933a-e81b177745cf)
+
 
 <!--
 **COTT0NC4NDY/COTT0NC4NDY** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
