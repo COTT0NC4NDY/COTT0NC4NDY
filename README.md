@@ -1,4 +1,5 @@
-## 𓇬⋆ ﾟ꩜‧˚𑁍ܓ![2c61789b57456cc3cd1e0b1ea461d210](https://github.com/user-attachments/assets/8bad4636-d7d4-4156-933a-e81b177745cf)
+## 𓇬⋆ ﾟ꩜‧˚𑁍ܓ!
+![b52b314162b09d64654c0b93f4ff131f](https://github.com/user-attachments/assets/ddfb7d5c-6f17-4655-91b7-ee76326ca3c0)
 
 
 <!--
