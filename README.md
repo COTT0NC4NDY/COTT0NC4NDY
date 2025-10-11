@@ -1,5 +1,6 @@
-## 𓇬⋆ ﾟ꩜‧˚𑁍ܓ!
-![b52b314162b09d64654c0b93f4ff131f](https://github.com/user-attachments/assets/ddfb7d5c-6f17-4655-91b7-ee76326ca3c0)
+## 𝐌𝐈𝐙𝐈SUA🌷
+![01af6c92279cc42ae63db3bf5241310e](https://github.com/user-attachments/assets/02f52c99-3c18-4d85-8634-3eba15d14b28)
+
 
 
 <!--
