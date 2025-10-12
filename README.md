@@ -1,6 +1,6 @@
-## 𝐌𝐈𝐙𝐈  .   🌸
+## okay
 ![bf57ddfb7282bba5e3d4f3b77e066671](https://github.com/user-attachments/assets/b566f07c-c12e-41d2-9e7c-2e76938fbaaf)
-            𝐬𝐡𝐞𝐬'𝐬𝐨 me🌺
+            𝐬𝐡𝐞𝐬'𝐬𝐨 me ( •̀ ω •́ )
 
 
 
